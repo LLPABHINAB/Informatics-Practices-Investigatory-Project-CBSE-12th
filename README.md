@@ -1,1 +1,1 @@
-# Investigatory Project CBSE [Class 12th]
+# IP Investigatory Project CBSE [Class 12th]
