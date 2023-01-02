@@ -1,1 +1,1 @@
-# Investigatory-Project-CBSE-12th-
+# Investigatory Project CBSE [Class 12th]
